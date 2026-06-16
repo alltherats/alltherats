@@ -11,7 +11,7 @@
  ${\textsf{\color{#caafd0}— judge people based on their interests as long as they're not harmful;}}$
  ${\textsf{\color{#caafd0}— racist, sexist, homophobe, etc. you know the deal, don't hate for no reason.;}}$
  <p align="center">
-     ${\textsf{\color{#caafd0}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
+     ${\textsf{\color{#caafd0}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
  ${\textsf{\color{#caafd0}I am but a humble man with little to no rules — be respectful, live laugh love, have fun and stay safe. Feel free to boop/kiss/sit close and/or chat}}$
 ${\textsf{\color{#caafd0}with me in game, if i'm not afk i'll probably respond. tho PLEASE make sure to whisper if you want to hold an actual conversation because}}$ 
 ${\textsf{\color{#caafd0}i'm struggling to keep up with the local chat. i'm glad to be friends, but preferably if you're not a minor.}}$ </p>
